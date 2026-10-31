@@ -1,2 +1,0 @@
-# bacana_sanduiche
-trabalho
